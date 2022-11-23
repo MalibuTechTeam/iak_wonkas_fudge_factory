@@ -4,8 +4,6 @@
 
 ---
 
-Porn Studio
-
 ## Features
 
 - 3 Floors
@@ -18,6 +16,6 @@ Porn Studio
 - Location: 481.14, -99.99, 63.06
 
 ## DMCA Protection Certificate
-![image](https://i.imgur.com/ZKgaF7B.png)
+![image](https://cdn.discordapp.com/attachments/1045063739738705940/1045104486991003699/image.png)
 
 ##### Copyright © 2022 Malibú Tech. All rights reserved.
